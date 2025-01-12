@@ -1,1 +1,1 @@
-# tysxv.github.io
+# teq.github.io
